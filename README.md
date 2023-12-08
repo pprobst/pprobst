@@ -1,4 +1,4 @@
-Just to clarify I'm only here temporarily until I get my own company off the ground. I'm trying to break into potato farming logistics.
+Laziness advocate.
 
 XMR: ```47seFbQfirsJNa7ZtTLAtZVLXhT1FJ1DzCZAPey6kPC7DiryRUEH2GjBADLizcqQpxcisgax74Aw89sVktxDTdBqBVDdaLh```
 
