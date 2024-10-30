@@ -1,1 +1,1 @@
-Laziness advocate. Tech agnostic. Generalist.
+lazy-evaluated collection of cells
